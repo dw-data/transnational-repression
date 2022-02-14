@@ -8,7 +8,7 @@ _Illustration:_ [Michel Penke](https://michelpenke.de)\
 _Writing:_  [Michel Penke](https://michelpenke.de)
 
 **Read the full articles on DW.com:**
-- [XXX](https://www.dw.com/en/xxx)
+- [How states hunt critics abroad](https://www.dw.com/en/how-states-hunt-critics-abroad/a-60685513)
 
 State persecution across borders, so-called transnational repression, is a rising phenomenon in contemporary international relations. More than 30 countries unlawfully persecute opposition figures outside their own borders through abductions, arrests, deportations, and killings. Three states stand out in particular in breaking international law. 
 
